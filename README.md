@@ -1,1 +1,0 @@
-# bharat-intern-task-1
